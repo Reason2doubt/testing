@@ -1,5 +1,5 @@
 ## The final one
 
-![A cat](https://i.ytimg.com/vi/tntOCGkgt98/maxresdefault.jpg)
+![A cat](http://best-hd-wallpapers.com/images/cats-hd-photo-wallpapers-5732_thumb.jpeg)
 
 Shall we delete this repo, my man?
